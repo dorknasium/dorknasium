@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... too many things
 - 🌱 I’m currently learning ... as much as I can
 - 💞️ I’m looking to collaborate on ... nothing, because I know nothing at this time
-- 📫 How to reach me ... not at this time
+- 📫 How to reach me ... no, thank you
 - 😄 Pronouns: ... he/him/IT
 - ⚡ Fun fact: ... is mostly human
 
